@@ -1,4 +1,5 @@
 # [studyinvietnam.github.io](https://studyinvietnam.github.io/)
+## [25022022](https://studyinvietnam.github.io/class10/toan/25022022/)
 ## [De-1](https://studyinvietnam.github.io/class10/toan/De-1/)
 ## [baigiang-27-12-2021](https://studyinvietnam.github.io/class10/toan/baigiang-27-12-2021/Unnamed.pdf)
 ## [Đề-cương-ôn-tập-cuối-HKI-Toan-10-thông-hiểu-lần-2.pdf](https://studyinvietnam.github.io/class10/toan/Đề-cương-ôn-tập-cuối-HKI-Toan-10-thông-hiểu-lần-2.pdf)
